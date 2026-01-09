@@ -18,7 +18,7 @@
 1258378153777430561 // cunt / xrxexs // added bc he faked his suicide, has nsfw art channel in his own discord despite being like 15
 697637504744161302 // dtruut123 // allows porn in server full of minors
 1301708961459867733 // 1x.x7 // posts furry porn art around minors
-701632642822701057 // ftnick // monsterlike gooner
+701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art" he said around minors
 969519949263544354 // awake115 // posts borderline nsfw in a server with minors
 789894523240841277 // re7orm // posted gore in BRING PF DOWN
 892000328751386674 // celest alt
