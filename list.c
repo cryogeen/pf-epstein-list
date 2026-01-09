@@ -1,4 +1,4 @@
-// yw
+// "I don't have to tell you things are bad. Everybody knows things are bad."
 // formatting is pretty simple
 // just remove all text after a // like C
 // then just loop over the list and ban them with your bot
@@ -51,3 +51,6 @@
 //563007363557097473 // smrkndev
 //703566926508589136 // shelby
 //1256648260500852870 // alt account of presumably a stylis employee
+//563237668037591050 // smokin.kills
+//275276043001004034 // callmepvp
+//465089262363213836 // ghostluke
