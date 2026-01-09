@@ -20,6 +20,7 @@
 1301708961459867733 // 1x.x7 // posts furry porn art around minors
 701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art" he said around minors
 969519949263544354 // awake115 // posts borderline nsfw in a server with minors
+1124859261361606726 // wdreamsz // another absolute degenerate
 789894523240841277 // re7orm // posted gore in BRING PF DOWN
 892000328751386674 // celest alt
 1053352529037119498 // crxxper // creep
@@ -54,3 +55,4 @@
 //563237668037591050 // smokin.kills
 //275276043001004034 // callmepvp
 //465089262363213836 // ghostluke
+//258206301006331904 // kamil
