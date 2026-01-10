@@ -18,8 +18,6 @@
 789894523240841277 // re7orm // posted gore in BRING PF DOWN
 892000328751386674 // celest alt
 1053352529037119498 // crxxper // creep
-1280559356844310631 // stylisd3automaton
-1040443879771615322 // cid9 / stylis.cid9 // previously shays sister?
 // i would put wabbit here but he hops alts. so, futile
 456226577798135808 // idk who this is, possibly willow
 215538683384692736 // mar // pedophile
@@ -61,3 +59,5 @@
 //275276043001004034 // callmepvp
 //465089262363213836 // ghostluke
 //258206301006331904 // kamil
+//1280559356844310631 // stylisd3automaton
+//1040443879771615322 // cid9 / stylis.cid9 // previously shays sister?
