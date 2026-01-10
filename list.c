@@ -31,7 +31,7 @@
 1301708961459867733 // 1x.x7 // mega degenerate retard 
 701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art"
 969519949263544354 // awake115 // defends degeneracy around children under the clause of "were just joking" and "normal ppl cant see it" (its one role request away btw)
-1124859261361606726 // wdreamsz // either alt account of awake or co defender
+1124859261361606726 // wdreamsz // is just as much of a hypergooner as awake and defends the same things
 1311157128144228466 // yeetgamer // pedophile
 1355786186832089240 // v02h / snoot // "yeah mommy likes it when you call her a slur" he says to a child, also posts borderline nsfw with minors in the channel
 
