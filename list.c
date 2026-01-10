@@ -15,12 +15,6 @@
 310496470325526548 // noelle81 // too open with his porn addiction to minors (didnt even ask my age)
 128677757050683392 // jess // 400 pound behemoth
 533518661600673792 // glorp // groomed 15 yo
-1258378153777430561 // cunt / xrxexs // added bc he faked his suicide, has nsfw art channel in his own discord despite being like 15
-697637504744161302 // dtruut123 // allows porn in server full of minors
-1301708961459867733 // 1x.x7 // posts furry porn art around minors
-701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art" he said around minors
-969519949263544354 // awake115 // posts borderline nsfw in a server with minors
-1124859261361606726 // wdreamsz // another absolute degenerate
 789894523240841277 // re7orm // posted gore in BRING PF DOWN
 892000328751386674 // celest alt
 1053352529037119498 // crxxper // creep
@@ -31,6 +25,17 @@
 215538683384692736 // mar // pedophile
 713409494914433084 // chairm4n // re7orm alt
 289169665341652993 // tyler_s (NOT tyler_fb / fleasion tyler) // sent fetish content to minors
+// context: this all revolves around 1 channel in the "PF Documentation", where blatant nsfw and borderline nsfw artwork was posted 
+// it wasnt public but you could get access to it in 1 message, literally just ask for it and you shall receive
+// when the channel was deleted by another member they got timed out and their admin removed, quite embarassing
+1258378153777430561 // cunt / xrxexs // added bc he faked his suicide, has nsfw art channel in his own discord despite being like 15
+697637504744161302 // dtruut123 // cunt associate, omega degenerate retard
+1301708961459867733 // 1x.x7 // mega degenerate retard 
+701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art"
+969519949263544354 // awake115 // defends degeneracy around children under the clause of "were just joking" and "normal ppl cant see it" (its one role request away btw)
+1124859261361606726 // wdreamsz // either alt account of awake or co defender
+1311157128144228466 // yeetgamer // pedophile
+1355786186832089240 // v02h / snoot // "yeah mommy likes it when you call her a slur" he says to a child, also posts borderline nsfw with minors in the channel
 
 // OPTIONAL
 // Remove the // before each id
