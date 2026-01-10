@@ -27,6 +27,8 @@
 // it wasnt public but you could get access to it in 1 message, literally just ask for it and you shall receive
 // when the channel was deleted by another member they got timed out and their admin removed, quite embarassing
 1258378153777430561 // cunt / xrxexs // added bc he faked his suicide, has nsfw art channel in his own discord despite being like 15
+1414933349994074132 // cunt alt
+978972138616815696 // cunt alt
 697637504744161302 // dtruut123 // cunt associate, omega degenerate retard
 1301708961459867733 // 1x.x7 // mega degenerate retard 
 701632642822701057 // ftnick // "why are we still allowing sfw art bro? we ONLY yes WE only want nsfw art"
