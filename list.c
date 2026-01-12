@@ -36,6 +36,7 @@
 1124859261361606726 // wdreamsz // is just as much of a hypergooner as awake and defends the same things
 1311157128144228466 // yeetgamer // pedophile
 1355786186832089240 // v02h / snoot // "yeah mommy likes it when you call her a slur" he says to a child, also posts borderline nsfw with minors in the channel
+263147999243272202 // bryce // https://docs.google.com/document/d/1NiuACtHwqIUIs6dU8KhCgath9ecB-Lo6QQU-CkSyV8A/edit?tab=t.0
 
 // OPTIONAL
 // Remove the // before each id
